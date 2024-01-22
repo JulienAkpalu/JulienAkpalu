@@ -14,4 +14,4 @@
 
 🔗 Find out more about my professional background https://www.linkedin.com/in/julien-akpalu-4a89a013b/ .
 
-🌍 Fun fact: I'm multilingual, fluent in Ewé, French, English, and Spanish, which has greatly enriched my cross-cultural work experiences.
+🌍 Fun fact: I'm multilingual, fluent in English, French, Spanish, and Ewé which has greatly enriched my cross-cultural work experiences.
