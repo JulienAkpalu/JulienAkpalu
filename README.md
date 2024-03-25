@@ -15,3 +15,5 @@
 🔗 Find out more about my professional background https://www.linkedin.com/in/julien-akpalu-4a89a013b/ .
 
 🌍 Fun fact: I'm multilingual, fluent in English, French, Spanish, and Ewé which has greatly enriched my cross-cultural work experiences.
+
+-📚 For a practical demonstration of my data analysis skills and expertise, feel free to explore my repositories, where you'll find a range of projects showcasing my proficiency in this area.
