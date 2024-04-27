@@ -4,8 +4,6 @@
 
 -🔍 Currently, I'm sharpening my skills in Data Analytics and GIS, blending my ecological expertise with modern data science tools to address environmental challenges.
 
--💼 My professional journey includes roles as a Forest Engineer, Scientific Advisor, and Agroforestry Engineer, with significant contributions to environmental projects in Morocco, Switzerland, Germany, Guinea, and France.
-
 -🌱 I'm continuously learning and recently completed a Google Data Analytics Professional Certificate to further enhance my data analysis capabilities.
 
 -🤝 I'm open to collaborations in environmental research, data-driven ecological studies, and sustainable resource management projects.
