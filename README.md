@@ -1,4 +1,4 @@
--👋 Hi, I'm Julien Akpalu
+-👋 Hi, I'm Komla Akpalu
 
 -🌿 I'm a passionate professional in Forestry, Agronomy, Ecology, and Natural Resource Management with extensive experience in both academic and practical applications. My career spans across multiple countries, demonstrating a strong international perspective and adaptability.
 
@@ -10,7 +10,7 @@
 
 📫 You can reach me at julienakpalu2@gmail.com .
 
-🔗 Find out more about my professional background https://www.linkedin.com/in/julien-akpalu-4a89a013b/ .
+🔗 Find out more about my professional background https://www.linkedin.com/in/komla-akpalu-4a89a013b/ .
 
 🌍 Fun fact: I'm multilingual, fluent in English, French, Spanish, and Ewé which has greatly enriched my cross-cultural work experiences.
 
